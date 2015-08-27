@@ -1,0 +1,2 @@
+# can-you-accept-credit-cards-payment
+We accept worldwide credit card user, like VISA Card, MasterCard, JCB,and Diners Club. We are third party credit cards payment processor Fashionpay,provide safe, convenient and professional payment services, support VISA,MasterCard,JCB, my service email address is: helen@fashionpay.com,please be free to contact me for any questions about credit cards payment. Skype: helen_poko
